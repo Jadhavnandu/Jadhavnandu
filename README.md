@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jadhavnandu
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...Data science/ackwirig new skills and Updating myself 
 - 🌱 I’m a .Data sciencentist and machine learnind and AI engineer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:+91 6304832359<!---
